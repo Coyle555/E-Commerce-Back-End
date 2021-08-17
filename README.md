@@ -23,3 +23,5 @@
   Email: carsoncoyle2015@gmail.com
 
   Feel free to email me before 9 p.m. M-F and I will try my best to get back to you ASAP.
+  
+  Video to see usage: https://drive.google.com/file/d/1flEZuvBIi43EUSU3qDXYeTmAOBcL0NbG/view
